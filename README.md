@@ -8,6 +8,6 @@
 
 📫 You can reach me via email at ismael.braz03@hotmail.com or connect with me on LinkedIn (https://www.linkedin.com/in/ismael-silva-aa04a723a/).
 
-⚡ Fun fact: I love music and people say that i am a good singer.
+⚡ Fun fact: I love music and people say i am a good singer.
 
 Let's code and create something amazing together!
